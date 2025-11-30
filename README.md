@@ -14,9 +14,14 @@
    ꒰ <strong>Daria</strong> :: Marw // <strong>she</strong> > any ꒱
 </p>
 <p align="center">
-C+H always allowed and encouraged ! im not talkative especially with people i barely know but im still interested in making friendsᅠᅠᅠᅠᅠ
- w2i i may not notice your messages
+C+H always allowed and encouraged ! im not talkative especially with people i barely know but im still interested in making friends
 </p>  
+
+<p align="center">
+ w2i i may not notice your messages
+</p>
+
+
 <p align="center">
 my english may be bad cuz it's not my native language
  </p>  
