@@ -28,9 +28,7 @@ my english may be bad cuz it's not my native language
 
 ---
  
-<p align="center">
-my socials and similar things
-</p>
+
 
  <p align="center">
   |    <a href="https://marws3p.straw.page/">straw page</a>  |  <a href="https://en.pronouns.page/@marwrutk1n">pronouns page</a>  |  
