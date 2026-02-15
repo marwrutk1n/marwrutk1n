@@ -23,7 +23,7 @@ C+H always allowed and encouraged ! im not talkative especially with people i ba
 
 
 <p align="center">
-my english may be bad cuz it's not my native language
+my english may be bad cuz it's not my first language
  </p>  
 
 ---
