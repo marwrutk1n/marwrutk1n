@@ -31,7 +31,7 @@ my english may be bad cuz it's not my first language
 
 
  <p align="center">
-  |    <a href="https://marws3p.straw.page/">straw page</a>  |  <a href="https://pronouns.cc/@marw">pronouns</a>  |    <a href="https://splin.atabook.org/">ata</a>  
+  |    <a href="https://marws3p.straw.page/">straw page</a>  |  <a href="https://pronouns.cc/@marw">pronouns</a>  |    <a href="https://splin.atabook.org/">ata</a>  |
 </p>
 
  <p align="center">
