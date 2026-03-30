@@ -1,11 +1,3 @@
-<div align="center">
-<img src="https://i.postimg.cc/ryDcy8F3/Bez-nazvania228-20260315221039.png>
- </div>
-<br>
-<br>
-<div align="center">
-<img src="https://i.postimg.cc/bNJjVp4B/IMG-0947.gif">
- </div>
 
 
 <div align="center">
@@ -41,7 +33,3 @@ $\color{#b4855b}{\textsf{‿‿‿}}\color{#ceb37c}{\textsf{‿‿‿}}\color{#d
 <img src="https://media1.tenor.com/m/zHZJpn7_tAgAAAAd/scanning-the-area-david-mason.gif" width="200">
  </div>
 
-
-<div align="center">
-<img src="https://i.postimg.cc/bNJjVp4B/IMG-0947.gif">
- </div>
